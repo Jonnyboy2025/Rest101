@@ -1,0 +1,124 @@
+### Shinto
+- Shinto
+    - "way of the spirits"
+    - Umbrella term for religious happenings in Japan before contact with other religious contexts from the Asian continenet
+    - Anachronistic... term gets applied looking back, but has gained traction throughout different eras
+- Island Nation 
+    - social structures develop without direct influence from Asian continent
+    - clan based society...familial communities
+        - Yamato clan ("dominant ethnic group" imperial line) claimed to be the first...archaeological evidence suggests otherwise
+        - isolated community...concepts of the supernatural develop from the immediate, familiar physical world...animism
+    - Animism
+        - Attributing supernatural powers to natural things and treating them accordingly
+        - Humanizing nature in order to relate to it
+### Kami
+- "Kami"
+    - Refers to individual deities
+    - Also refers to power of the cosmos
+    - Directly related to animism
+        - Attributing spiritual/supernatural power to nature/ objects
+- Four General Types of Kami
+    - Natural phenomena: storms,sun,moon
+    - Clan deities: animals associates with families
+        - Clan social structure
+    - Heroes: humans who become legends
+        - Military heroes, great ancestors, etc.
+    - Awe inspiring natural objects: mountains, trees, rocks, waterfalls, etc.
+        - Often demarcated as such with rope or gate(torii)
+        - e.g. Mount Fuji
+### Nature of Kami
+- Kami are neither inherently "good" nor inherently "bad"
+- Their demeanor is directly related to how one deals with them
+    - A certain kind of ethic
+- Properly dealing with kami involves issues surrounding pollution
+- Pollution:
+    - Not the same as "sin"...happens as a part of everyday living
+        - Contact with blood, death, etc.
+    - Pollution can offend a kami...make them upset
+    - External condition, not an issue of marality
+        - Can be cleansed, washed away
+    - to approach a kami for a favor or paying respect...approach with due respect, try not to offend
+    - Rules of Practice
+### Worshipping Kami
+- Kami have a part in everyday life
+    - personal worship: wash, clap, pray
+- Priesthood and laity
+- Special occasions
+    - Lifecycle rituals: birth, marriage, funeral
+    - Festivals: new years
+- Practice-- Regulated order:
+    - 1) Purification: wash with water
+    - 2) Invite the kami down: clap to awake the kami
+    - 3) Offerings: rice, water, sake, entertainment: sumo wrestling
+    - 4) Prayer: words have the power to flatter kami
+    - 5) Feast: community enjoys the relationship with kami by sharing in the offerings
+### Sources of Shintoism
+- Kojiki(circa 712 CE)
+    - written in proto-Japanese
+    - Records the mythology of the gods, creation of Japan, stories of the first emperors of Japan
+    - Creation myths
+- Nihongi (720 CE)
+    - written in Chinese
+    - Mythical creation of Japan, stories of the gods
+    - Helped scholars understand the Kojiki
+    - creation Myths
+- Cosmology
+    - stories of a cosmology's origination by mythical/supernatural creation
+### Creation of Japan
+- Izangi and Izanami
+    - First two kami ... fraternal twins
+    - Izanagi and Izanmi wants to investigate the primodial waters
+    - Izanagi stirs the primordial ocean with his spear, and when he lifts it out of the water, the drops that fall off form the main Japanese islands
+    - Izanami gives birth to other islands
+    - A kind of miraculous birth   
+        - Creating place... Japan as the creation of the gods, sacred place
+- Izanagi and Izanami set to creating the other kami
+- When she gives birth to the fire kami...Izanami is burnt to death
+- Izanagi runs in terror and grief...the tears that fall from his eyes become the sun goddes, from his nose comes the storm god, his eyes become the moon god
+### Amaterasu: The Kami of The Sun
+- Amaterasu becomes the most important and revered kami
+    - she is the sun in the "land of the rising sun"
+    - As the sun kami, she rules the heavens...as the sun rules the sky
+    - she is responsible for agriculture
+    - Childed by the other kami, Amaterasu hides herself in cave
+        - Sun disappears, and the other kami start feeling guilty
+    - They put on a great festival to lure her out
+        - Dancing, singing, food, hang mirror on a gate (torii) to catch her fancy
+    - She comes out, captivated by her own reflection, and they seal the cave behind her with a great stone and a big rope
+        - mirror becomes the physical representation of the kami 
+### Amaterasu and the Divine Origins of The Imperial Line
+- Amaterasu sends her grandson (Ningi) down to the islands with a gift of a sword, a jewel and a sacred mirror
+- These relics are passed to Ningi's grandson, Jimmu, who becomes the first emperor of Japan
+    - imperial line traces its lineage all the way back to Amaterasu
+    - Signified by sacred relics, the sword, jewel and the mirror, which becomes the official/sacred regalia of the Japanese emperors
+        - Mirror is now housed at Ise shrine
+        - sword is at Atsuta shrine
+        - Jewel is at the Imperial Palace
+- Authority: Divine claim to the throne, Divine lineage
+- To wit:
+- MacArthur demanded Hirhito relinquish possession of the three relics as part of the Japanese surrender during WWII
+    - He knew the symbolic meaning the three relics had for Hirohito's claim to the throne, as well as his claim to divine ancestry
+### Influence of Shinto in Japanese Life
+- Great influence on Buddhism as it enters Japanese
+- Making Japanese Buddhism Japanese
+- Forefront of Japanese identity during the early 20th century
+    - Rationale for ethnic superiority in military campaigns
+- State Shinto (ca 1868-1945): nationalistic ideology (religious?)
+    - refers to Shintoism developed by Japanese government from 1868-1945 as a foundation for a militaristic identity
+    - state required everyone to participate
+    - Emperor portrayed as a kami
+        - Descendent of Amaterasu...a Kami in his own right
+    - Japanese as the center of the world
+        - Land of the rising sun...Kojiki
+    - A world 
+### Shinto Today
+- Renouncing imperial divinity
+    - MacArthur requires Hirohito to announce over the radio to deny any sense of divinity
+        - First time many Japanese had ever heard the emperor's voice
+- U.S. occupation cautions of Shinto practice
+- As Japan is rebuilt in Western image, Shinto begins to come back as a "religion"
+    - Emperor removed of political power and divine status
+    - "Shintoism" develops without militaristic overtones
+- Rhetoric of Japan divine race, center of the world disappears
+- Replaced by desire to uphold tradition... a cultural identity
+- Shintoism plays an active part in everyday life of Japanese society
